@@ -1,4 +1,4 @@
-## Olá! Me chamo  Gusavo Bordinhon 🖐️
+## Olá! Me chamo  Gustavo Bordinhon Lima 🖐️
 
 [![Social](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://www.instagram.com/bordinhon_gustavo/)
 [![Social](https://img.shields.io/badge/TikTok-000000?style=for-the-badge&logo=tiktok&logoColor=white)](https://www.tiktok.com/@bordinhon01)
