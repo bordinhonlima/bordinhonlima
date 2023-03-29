@@ -18,3 +18,6 @@
 </div><br/>
 
 Apaixonado por Games e Tecnologia.
+
+## Estudando Ciência da computação na UTFPR.
+
